@@ -1,5 +1,5 @@
 # conflict-test
-Du lundi au samedi  
+Du lundi au vendredi  
 On attend qu'une chose  
 C'est compter les jours  
 Tous à tour de rôle  
