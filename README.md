@@ -5,7 +5,7 @@ C'est compter les jours
 Tous à tour de rôle
 Trois, deux, un !!!!!
 
-Ca y est c'est le week-end
+Ca y est c'est le week-end  
 Vive les super week-end
 C'est comme ça qu'on les aime
 Faire le plein d'énergie
