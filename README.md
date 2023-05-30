@@ -1,5 +1,5 @@
 # conflict-test
-Du lundi au vendredi
+De Janvier à Décembre
 On attend qu'une chose
 C'est compter les jours
 Tous à tour de rôle
